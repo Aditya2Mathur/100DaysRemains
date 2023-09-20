@@ -1,0 +1,1 @@
+Serious learning because hundred days remaining in 2024
